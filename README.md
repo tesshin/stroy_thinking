@@ -1,1 +1,0 @@
-# stroy_thinking
